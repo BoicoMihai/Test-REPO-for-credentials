@@ -7,5 +7,12 @@ Liceul teoretic Ginta Latina
 Am ochelari. 600$ 
 
 ## hobby 
+
 programarea
 cavalerul gol
+
+## fav stuff
+Yk 0
+GI
+BlackInk on DS
+90KG Bench 10 reps
