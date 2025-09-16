@@ -16,3 +16,4 @@ Yk 0
 GI
 BlackInk on DS
 90KG Bench 10 reps
+110 squats 11 reps
